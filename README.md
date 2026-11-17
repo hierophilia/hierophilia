@@ -5,3 +5,22 @@
 
 
 i am usually afk or hanging out with my friends! if you wish to interact with me please whisper! i'm usually up to chat and will try to reply as soon as i can :) please do not get upset if i do not respond, it will only make me not want to talk to you.
+
+
+i'm up for stupid / joke roleplays (stuff like in character jokes n whatnot), but i do not do actual roleplays :)
+
+
+![divider](https://64.media.tumblr.com/c315c3435bb8dd9ef94e28a723724c4b/c181a9c4428d618b-a1/s1280x1920/78123da271424fb33cbf4f33ce9f3bca2ec0e356.pnj)
+
+
+𐔌 . ⋮ DO NOT INTERACT! .ᐟ ֹ ₊ ꒱
+
+
+MINORS OR ANYONE WITH AN AGELESS ACCOUNT. I PLAY ON THE 18+ SERVER FOR A REASON, I DO NOT WANT TO TALK TO CHILDREN.
+RACIST, QUEERPHOBIC, ZIONIST / PRO-ISREAL, ANTISEMITES, XENOPHOBES, PRO-TRUMP / PRO-ICE / MAGA ETC.
+PRO/DARKSHIP, ANTI-ANTI, "NEUTRAL" SHIPPERS, MAPS, LOLI/SHOTACONS, DDLG / ABDL, HARMFUL PARAPHILIAS (PEDO/ZOO/NECRO/ETC); I DO NOT CARE IF UR PRO/NEU/COMP/ANTI CONTACT DO NOT TALK TO ME.
+RADQUEER, TERFs, ENDOS / NON-TRAUMAGENIC SYSTEMS, GEN AI USERS, ANYONE THAT USES THE TERM FUTA OR FEMBOY.
+
+SHIPPERS OF: ASL, HANLU, LAWLU, ZOROBIN, ZORO X PERONA, ZORO X TASHIGI, SANJI X PUDDING, NAMI X MEN, SHANKS X LUFFY, MIHAWK X PERONA
+ANYONE THAT CALLS YAMATO A WOMAN. 
+WHITE USOPP.
