@@ -9,7 +9,7 @@
 <p align="center">i am usually afk or hanging out with my friends! if you wish to interact with me please whisper! i'm usually up to chat and will try to reply as soon as i can :) please do not get upset if i do not respond, it will only make me not want to talk to you. i'm up for stupid / joke roleplays (stuff like in character jokes n whatnot), but i do not do actual roleplays :)
 </p>
 
-![divider](https://64.media.tumblr.com/c315c3435bb8dd9ef94e28a723724c4b/c181a9c4428d618b-a1/s1280x1920/78123da271424fb33cbf4f33ce9f3bca2ec0e356.pnj)
+<p align="center"><img src="https://64.media.tumblr.com/c315c3435bb8dd9ef94e28a723724c4b/c181a9c4428d618b-a1/s1280x1920/78123da271424fb33cbf4f33ce9f3bca2ec0e356.pnj">
 
 
 <p align="center">𐔌 . ⋮ DO NOT INTERACT! .ᐟ ֹ ₊ ꒱
@@ -19,15 +19,11 @@
 </p>
 <p align="center">RACIST, QUEERPHOBIC, ZIONIST / PRO-ISREAL, ANTISEMITES, XENOPHOBES, PRO-TRUMP / PRO-ICE / MAGA ETC.
 </p>
-<p align="center">PRO/DARKSHIP, ANTI-ANTI, "NEUTRAL" SHIPPERS, MAPS, LOLI/SHOTACONS, DDLG / ABDL, HARMFUL PARAPHILIAS (PEDO/ZOO/NECRO/ETC); I DO NOT CARE IF UR PRO/NEU/COMP/ANTI CONTACT DO NOT TALK TO ME.
-</p>
-<p align="center">RADQUEER, TERFs, ENDOS / NON-TRAUMAGENIC SYSTEMS, GEN AI USERS, ANYONE THAT USES THE TERM FUTA OR FEMBOY.
+<p align="center">PRO/DARKSHIP, ANTI-ANTI, "NEUTRAL" SHIPPERS, MAPS, LOLI/SHOTACONS, DDLG / ABDL, HARMFUL PARAPHILIAS (PEDO/ZOO/NECRO/ETC); I DO NOT CARE IF UR PRO/NEU/COMP/ANTI CONTACT DO NOT TALK TO ME. RADQUEER, TERFs, ENDOS / NON-TRAUMAGENIC SYSTEMS, GEN AI USERS, ANYONE THAT USES THE TERM FUTA OR FEMBOY.
 </p>
 <p align="center">SHIPPERS OF: ASL, HANLU, LAWLU, ZOROBIN, ZORO X PERONA, ZORO X TASHIGI, SANJI X PUDDING, NAMI X MEN, SHANKS X LUFFY, MIHAWK X PERONA
 </p>
-<p align="center">ANYONE THAT CALLS YAMATO A WOMAN. 
-</p>
-<p align="center">WHITE USOPP / ANYONE THAT GETS UPSET AT MAKING THE CHARACTERS DARKER.
+<p align="center">ANYONE THAT CALLS YAMATO A WOMAN. WHITE USOPP / ANYONE THAT GETS UPSET AT MAKING THE CHARACTERS DARKER.
 </p>
 
 <p align="center"><img src="https://64.media.tumblr.com/042122f33b67dd573c4bdee41609d062/6f886a6c52ac96a7-51/s400x600/cd0dca7709ede7ea3c9fa8e9523c47c1c7411677.pnj" alt="franky" class="fr-fic fr-dii" width="95" height="95"><img src="https://64.media.tumblr.com/98d91a61ead9256bbf6af1601547898f/6f886a6c52ac96a7-a9/s400x600/4d661af58eeaef0670e330dd6382b09f305f176f.pnj" alt="usopp" class="fr-fic fr-dii" width="95" height="95"><img src="https://64.media.tumblr.com/7c44a6f5b6fdfeca5a0dc7f8d6086ae9/6f886a6c52ac96a7-2a/s400x600/99d2bdc37189c7c5d54c891a3edccd7467ec9ff6.pnj" alt="brook" class="fr-fic fr-dii" width="95" height="95"><img src="https://64.media.tumblr.com/505454fb66e1927694c40801d210df43/6f886a6c52ac96a7-db/s400x600/94a2bf498bad96ed41a1333dfc43075e76c0d06a.pnj" alt="jinbe" class="fr-fic fr-dii" width="95" height="95"><img src="https://64.media.tumblr.com/0a3eecb292ef447333a391634f3171af/6f886a6c52ac96a7-e2/s400x600/667c9f54a0d1e6de758196ee9d09d757f3c1a2c4.pnj" alt="chopper" class="fr-fic fr-dii" width="95" height="95"></p>
